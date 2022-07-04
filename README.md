@@ -1,0 +1,2 @@
+# terkentod
+For kentod adekmu
